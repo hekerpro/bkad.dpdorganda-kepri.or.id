@@ -1,1 +1,0 @@
-# bkad.dpdorganda-kepri.or.id
